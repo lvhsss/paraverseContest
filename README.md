@@ -1,3 +1,3 @@
 # paraverseContest
 
-In Honor Of GayDev & Co
+In Honor Of GayDev & Co.
